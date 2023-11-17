@@ -1,6 +1,6 @@
 大家好，这里是<a href="https://www.favcomic.com">喜漫漫画</a>，一个专注提供中文漫画资源的网站。我将在这里分享好的中文漫画资源。
 
-2023年11月16日
+2023年11月16日<br/>
   新上作品：
     <a href="https://www.favcomic.com/comic/detail/905154980934197248">雷霆之锤</a>
     <a href="https://www.favcomic.com/comic/detail/905155264397844480">平行都市</a>
@@ -21,8 +21,8 @@
     <a href="https://www.favcomic.com/comic/detail/922522497738481664">REVERSE01</a>
     <a href="https://www.favcomic.com/comic/detail/922523696298598400">REVERSE02</a>
     <a href="https://www.favcomic.com/comic/detail/922525316524679168">邻之泥酔妻~人妻水著诱戏~</a>
-    <a href="https://www.favcomic.com/comic/detail/922615124039180288">行动扫码鸡</a>
-  更新作品：
+    <a href="https://www.favcomic.com/comic/detail/922615124039180288">行动扫码鸡</a><br/>
+  更新作品：<br/>
     <a href="https://www.favcomic.com/comic/detail/898251860379574272">洞洞杂货店</a>
     <a href="https://www.favcomic.com/comic/detail/871727812581662720">大黑暗</a>
     <a href="https://www.favcomic.com/comic/detail/871729096223236096">帝乃三姐妹原来很好搞定</a>
@@ -91,7 +91,7 @@
     <a href="https://www.favcomic.com/comic/detail/912868562761293824">修士之人类边疆</a>
     <a href="https://www.favcomic.com/comic/detail/913148211663872000">咖啡厅打工的日子</a>
     <a href="https://www.favcomic.com/comic/detail/913149493006966784">别叫我老师</a>
-    <a href="https://www.favcomic.com/comic/detail/916059935526232064">秘密工坊</a>
+    <a href="https://www.favcomic.com/comic/detail/916059935526232064">秘密工坊</a><br/>
 
 
   
