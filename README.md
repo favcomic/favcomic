@@ -2,26 +2,26 @@
 
 2023年11月16日
   新上作品：
-    <a href="https://www.favcomic.com/comic/detail/905154980934197248">雷霆之锤</a>
-    <a href="https://www.favcomic.com/comic/detail/905155264397844480">平行都市</a>
-    <a href="https://www.favcomic.com/comic/detail/906230773969985536">微疼姑姑的鬼故事</a>
-    <a href="https://www.favcomic.com/comic/detail/906966482649489408">掠食者</a>
-    <a href="https://www.favcomic.com/comic/detail/906967184943751168">儿童之家</a>
-    <a href="https://www.favcomic.com/comic/detail/906967441396080640">杀人者的难堪</a>
-    <a href="https://www.favcomic.com/comic/detail/907256797612613632">沉默之夜</a>
-    <a href="https://www.favcomic.com/comic/detail/907260052958748672">ON AIR：现正直播中</a>
-    <a href="https://www.favcomic.com/comic/detail/907262243090079744">妮娜的魔法潘朵拉</a>
-    <a href="https://www.favcomic.com/comic/detail/907263237014298624">吃掉丈夫的女人</a>
-    <a href="https://www.favcomic.com/comic/detail/907263507714678784">噩梦手记</a>
-    <a href="https://www.favcomic.com/comic/detail/907263991552811008">附身</a>
-    <a href="https://www.favcomic.com/comic/detail/907268746794639360">蔷颜欢笑</a>
-    <a href="https://www.favcomic.com/comic/detail/907269158864035840">消噬的双胞胎</a>
-    <a href="https://www.favcomic.com/comic/detail/908383228417679360">替身作家</a>
-    <a href="https://www.favcomic.com/comic/detail/922521172019650560">和素颜辣妹挥汗性交～与素颜及身体都很纯洁的她洗岩盘浴～</a>
-    <a href="https://www.favcomic.com/comic/detail/922522497738481664">REVERSE01</a>
-    <a href="https://www.favcomic.com/comic/detail/922523696298598400">REVERSE02</a>
-    <a href="https://www.favcomic.com/comic/detail/922525316524679168">邻之泥酔妻~人妻水著诱戏~</a>
-    <a href="https://www.favcomic.com/comic/detail/922615124039180288">行动扫码鸡</a>
+    <a href="https://www.favcomic.com/comic/detail/905154980934197248">雷霆之锤</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/905155264397844480">平行都市</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/906230773969985536">微疼姑姑的鬼故事</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/906966482649489408">掠食者</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/906967184943751168">儿童之家</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/906967441396080640">杀人者的难堪</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907256797612613632">沉默之夜</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907260052958748672">ON AIR：现正直播中</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907262243090079744">妮娜的魔法潘朵拉</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907263237014298624">吃掉丈夫的女人</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907263507714678784">噩梦手记</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907263991552811008">附身</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907268746794639360">蔷颜欢笑</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/907269158864035840">消噬的双胞胎</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/908383228417679360">替身作家</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/922521172019650560">和素颜辣妹挥汗性交～与素颜及身体都很纯洁的她洗岩盘浴～</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/922522497738481664">REVERSE01</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/922523696298598400">REVERSE02</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/922525316524679168">邻之泥酔妻~人妻水著诱戏~</a><br/>
+    <a href="https://www.favcomic.com/comic/detail/922615124039180288">行动扫码鸡</a><br/>
   更新作品：
     <a href="https://www.favcomic.com/comic/detail/898251860379574272">洞洞杂货店</a>
     <a href="https://www.favcomic.com/comic/detail/871727812581662720">大黑暗</a>
