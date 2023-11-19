@@ -255,7 +255,7 @@
     <a href="https://www.favcomic.com/comic/923293537322278912">Byoru – 虎</a>
     <a href="https://www.favcomic.com/comic/923293628347064320">CandyBall – 下平玲花兔女郎</a>
     <a href="https://www.favcomic.com/comic/923295527578247168">Vol.069 - Mozzi </a>
-    <a href="https://www.favcomic.com/comic/923295650148392960">VOL.084 - Ye Eun</a><br/<>
+    <a href="https://www.favcomic.com/comic/923295650148392960">VOL.084 - Ye Eun</a><br/>
   更新作品：
     <a href="https://www.favcomic.com/comic/871372817977974784">在异世界获得超强能力的我，在现实世界照样无敌</a>
     <a href="https://www.favcomic.com/comic/871544837348925440">网购技能开启异世界美食之旅</a>
